@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @rayzor826
+- 👋 Hi, I’m Ray!
 - 👀 I’m interested in radio broadcasting, audio and video producing, and creating awesome programs!
 - 🌱 I've been coding since Myspace! (Now learning about recomps with help from AI).
-- 💞️ This a new journey for me, so please bare with me as i figure out these bugs.
+- 💞️ This a new journey for me, so please bare with me as i figure out these bugs on my PS Vita.
 - 📫 How to reach me socials @BigRay826 Thank you!
 
 <!---
